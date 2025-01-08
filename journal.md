@@ -13,3 +13,6 @@ ai has taken over the internet in the past few years and theres alot to know abo
 i use the word brain rot more than i would like to admit. I claim to have "brain rot." i say that because ill repeat internet memes and quotes. I think internet has had a negative impact on me the past year just because of the mental state i was in. I eventually got so bad mentally i went to the mental hospital twice. the first time for a week the second time for 4 months. I think teens can avoid "brain rot" by limiting scream time especially limiting time spent on social media such as tiktok and instagram.
 # december 15, 2024
 i am looking forward to winter break. im excited to not go to school everyday. Im also excited for the holidays and to spend time with those i love.
+# january 8, 2025
+last semester i enjoyed how chill the class was. it didnt make me worry and stress out like my other classes. this class is more self paced and online which i like. this semester i really just wanna pass with all 
+A's an B's. I was told i would need to take this class in order to become a biomedical technician.
