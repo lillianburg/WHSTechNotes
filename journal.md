@@ -16,3 +16,5 @@ i am looking forward to winter break. im excited to not go to school everyday. I
 # january 8, 2025
 last semester i enjoyed how chill the class was. it didnt make me worry and stress out like my other classes. this class is more self paced and online which i like. this semester i really just wanna pass with all 
 A's an B's. I was told i would need to take this class in order to become a biomedical technician.
+# january 13, 2025
+I think ai can both enhance and limit what we can do for jobs. Ai can help us complete things but it also might make it where companies want ai and machines over actual workers. You only have to buy the robot you dont have to pay it a paycheck. My career is going to be fixing machines so im not entirely sure how ai would do my career. I also dont think i can prepare myself for that because we dont know what could and what will happen. Itll be a metter of how i handle it when it happens. I just have to be ready to do whatever i have to do in that situation.
