@@ -22,3 +22,11 @@ I think ai can both enhance and limit what we can do for jobs. Ai can help us co
 I think the government is somewhat looking out for american safety but i dont think banning tiktok would have done alot. Banning tiktok because its owned by a chinese company is kinda pointless due to the fact we have vpns now and we have so many other apps that chinese companies own. Tiktok could definetely make us more aware about their safety issues and try to work with those issues. Some issues could be weird adults and all they would have to do is ban that acount, or simply block that device from the app. Ive been blocked by apps before but im not sure if itll work on tiktok.If i was to be working with tiktok to develope a safety feature it would probably have something to do with monotoring the actions of users to see if they seem to pose a threat to anyone or anything.
 
 Theres not a whole lot i can personally think of doing to help tiktok. In reality no matter what we do we wont ever be one hundred percent safe.One thing normal citizens could do is monitor how much they share online especially famour influencers. We make it easier to steal our info by posting and sharing everything on social media. Making tiktok a safer space wouldsd need the help from both the government and national citizens.
+# january 27, 2025
+| Syntax      | Description | Test Text     |
+| :---        |    :----:   |          ---: |
+| jimmy      | honda civic    | Drilled Hole In Gas Tank  |
+| kayla  | GMC Sierra       | Fixed Wrong Problem|
+| bart   | toyota Corolla	| Left Stains On Carpet|
+|Harrison |Subaru Forester|Left The Oil Cap Off|
+
