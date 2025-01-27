@@ -23,7 +23,7 @@ I think the government is somewhat looking out for american safety but i dont th
 
 Theres not a whole lot i can personally think of doing to help tiktok. In reality no matter what we do we wont ever be one hundred percent safe.One thing normal citizens could do is monitor how much they share online especially famour influencers. We make it easier to steal our info by posting and sharing everything on social media. Making tiktok a safer space wouldsd need the help from both the government and national citizens.
 # january 27, 2025
-| Syntax      | Description | Test Text     |
+| name      |car | mistake    |
 | :---        |    :----:   |          ---: |
 | jimmy      | honda civic    | Drilled Hole In Gas Tank  |
 | kayla  | GMC Sierra       | Fixed Wrong Problem|
