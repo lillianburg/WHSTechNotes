@@ -29,4 +29,5 @@ Theres not a whole lot i can personally think of doing to help tiktok. In realit
 | kayla  | GMC Sierra       | Fixed Wrong Problem|
 | bart   | toyota Corolla	| Left Stains On Carpet|
 |Harrison |Subaru Forester|Left The Oil Cap Off|
-
+# febuary 3, 2025
+in order to prevent aircraft acsidents we might be able to make something like warning systems to let you know when your in the vacinity of other aircrafts. im not sure what we could really do besides be more careful even though we are already careful.
