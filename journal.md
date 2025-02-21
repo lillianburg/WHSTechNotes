@@ -39,3 +39,5 @@ in order to prevent aircraft acsidents we might be able to make something like w
 |Hexagon|	Brown|	6|
 |Triangle|	Purple|	4|
 |Octagon|	Red|	3|
+# febuary 21, 2025
+last week i learned how to clean corosion off a car battery. I thought it was interesting beause its made of chemicals. You have to wear gloves because you shouldnt touch the chemicals. You can use baking soda and water to help wash it off the collision.
