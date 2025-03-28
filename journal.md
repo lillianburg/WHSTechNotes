@@ -43,3 +43,5 @@ in order to prevent aircraft acsidents we might be able to make something like w
 last week i learned how to clean corosion off a car battery. I thought it was interesting beause its made of chemicals. You have to wear gloves because you shouldnt touch the chemicals. You can use baking soda and water to help wash it off the collision.
 # march 17, 2025
 over spring break i mainly used my phone to text people. it helped me stay in contact with family, my boyfriend and friends. i used it to watch videos, record videos, take photos and post them. the only challenging part was connection issues causing communication to be a little more difficult. 
+# march 28, 2025
+i think ai makes watching games less interesting cause its already predicting the outcome for you making it less interesting to be honest. i like the surprise that comes with watching the game. Though the streaming services does help make it easier to find where to watch it. Social media and technology can be both good and bad for this i guess.
