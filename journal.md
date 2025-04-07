@@ -45,3 +45,5 @@ last week i learned how to clean corosion off a car battery. I thought it was in
 over spring break i mainly used my phone to text people. it helped me stay in contact with family, my boyfriend and friends. i used it to watch videos, record videos, take photos and post them. the only challenging part was connection issues causing communication to be a little more difficult. 
 # march 28, 2025
 i think ai makes watching games less interesting cause its already predicting the outcome for you making it less interesting to be honest. i like the surprise that comes with watching the game. Though the streaming services does help make it easier to find where to watch it. Social media and technology can be both good and bad for this i guess.
+# april 7, 2025
+i think ai would make studying easier. you wouldnt have to study alone but you dont have to count on others. Ai can provide more ways to learn and study, is always there. I think i could benifit from ai tutoring because i dont like human interaction for the most part and i like going at my own pace. Ai can help me work at my pace instead of rushing me or slowing me down. 
