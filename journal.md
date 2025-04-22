@@ -47,3 +47,11 @@ over spring break i mainly used my phone to text people. it helped me stay in co
 i think ai makes watching games less interesting cause its already predicting the outcome for you making it less interesting to be honest. i like the surprise that comes with watching the game. Though the streaming services does help make it easier to find where to watch it. Social media and technology can be both good and bad for this i guess.
 # april 7, 2025
 i think ai would make studying easier. you wouldnt have to study alone but you dont have to count on others. Ai can provide more ways to learn and study, is always there. I think i could benifit from ai tutoring because i dont like human interaction for the most part and i like going at my own pace. Ai can help me work at my pace instead of rushing me or slowing me down. 
+# april 14, 2025
+I personally dont think restricting the use of phones is a good idea. you never know why a student is using a phone cause it isnt always for social media. sometimes lets say for example i use my phone in the morning to text my dad cause hes deployed and his day time is our night time and the only time i can really text him is inthe morning at school. There could also be emergencies in school for the student and outside with the students families.
+# april 22, 2025
+subject: thank you for your support
+Dear mrs.stray
+i wanted to take a moment to tell you i appreciate you and the work you do. You helped me transition from living in a mental hospital to functioning in a normal school setting. It means alot you would check in on me even if i wasnt struggling. It means alot to have someone doing that when i feel so alone so often. You made me feel safe and comfortable walking into your office. Even though i wasnt really struggling this year it has been hard and i needed someone doing those short check ups on me. it reminds me im not alone andtheres people who do care and are looking out for me. Thank you for simply doing your job and helping me.
+Best regards,
+lillian m. burg
