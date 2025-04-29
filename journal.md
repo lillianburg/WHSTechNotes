@@ -56,8 +56,8 @@ i wanted to take a moment to tell you i appreciate you and the work you do. You 
 Best regards,
 lillian m. burg
 # april 29, 2025
-| name      |flavor | occasion    |  price|
-| :---        |    :----:   |          ---: |
+| name| flavor | occasion | price|
+| :---        |    :----:   |    :----:  |          ---: |
 |Sally	|Chocolate|Graduation|	$35.00|
 |Michael|	Vanilla|	Farewell Party|	$37.00|
 |Emma	|Carrot|	Birthday|	$39.00|
