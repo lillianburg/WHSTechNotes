@@ -55,3 +55,9 @@ Dear mrs.stray
 i wanted to take a moment to tell you i appreciate you and the work you do. You helped me transition from living in a mental hospital to functioning in a normal school setting. It means alot you would check in on me even if i wasnt struggling. It means alot to have someone doing that when i feel so alone so often. You made me feel safe and comfortable walking into your office. Even though i wasnt really struggling this year it has been hard and i needed someone doing those short check ups on me. it reminds me im not alone andtheres people who do care and are looking out for me. Thank you for simply doing your job and helping me.
 Best regards,
 lillian m. burg
+# april 29, 2025
+| name      |flavor | occasion    |  price|
+| :---        |    :----:   |          ---: |
+|Sally	|Chocolate|Graduation|	$35.00|
+|Michael|	Vanilla|	Farewell Party|	$37.00|
+|Emma	|Carrot|	Birthday|	$39.00|
