@@ -63,3 +63,5 @@ lillian m. burg
 |Emma	|Carrot|	Birthday|	$39.00|
 # may 12 2025
 I think the chromebook challenge is really unethical and dangerous. Our school electronics or relatively any electronic shouldnt be used in this challenge. Its not only dangerous to you but others around you. You could also get in trouble if it cause damage or anything like that. i feel like this trend shouldnt have became a trend in the first place. Just becauser its a joke it can cause seriopus damages. off the videos i have seen its a dangerous and very stupid trend to partake in. I think its best we use electronics the way we are supposed to and stop doing very stupid things with them.
+# may 20, 2025
+im more than ready for summer. ive been ready for summer for awhile now.
